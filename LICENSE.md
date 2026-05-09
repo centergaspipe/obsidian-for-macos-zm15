@@ -1,4 +1,4 @@
-
+elite Obsidian for macOS Macro | tags + custom shortcuts is the best Obsidian for macOS macro, featuring tags and custom shortcuts. Safe, efficient, and optimized for macOS users.
 
 
 
